@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @EddyTay000
+- 😄 Pronouns:any
